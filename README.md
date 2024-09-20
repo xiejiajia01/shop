@@ -1,1 +1,1 @@
-www.laziji.cc
+https://www.laziji.cc
